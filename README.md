@@ -17,7 +17,6 @@ I’m interested in collaborating on meaningful projects, particularly those rel
 ## 📫 How to Reach Me
 
 - **LinkedIn**: [Fabricio Guacuto](https://www.linkedin.com/in/fabricio-guacuto/)
-- **Email**: [guacutofabricio@gmail.com](mailto:guacutofabricio@gmail.com)
 
 ---
 
